@@ -7,8 +7,6 @@
 
 - 📫 How to contact me **e.zinchenko1096@gmail.com**
 
-- 📄 About my experiences [file:///C:/Users/zinch/Downloads/ELVIRA%20ZINCHENKO%20(4).pdf](file:///C:/Users/zinch/Downloads/ELVIRA%20ZINCHENKO%20(4).pdf)
-
 - ⚡ Fun fact **Purposeful and ambitious**
 
 <h3 align="left">Connect with me:</h3>
